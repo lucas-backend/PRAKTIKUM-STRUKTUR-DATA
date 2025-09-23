@@ -1,3 +1,1 @@
-Nama: I Made Dipa Rama A
-NPM: 2415061001
-PSD-B
+**I Made Dipa Rama A** - **2415061001** - **PSD-B**
